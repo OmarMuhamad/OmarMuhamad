@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @OmarMuhamad
+- 👋 Hi, I’m Omar Mohammad
